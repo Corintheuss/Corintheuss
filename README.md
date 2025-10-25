@@ -107,8 +107,11 @@
 
 ════════════════════════════════════════
 
+
 ![image alt](https://github.com/Corintheuss/Corintheuss/blob/d75ab82138f4fdfa1c4fb81e87fccdcf73583e97/tumblr_c0a2f4ad26f5416e3f6516f16992c286_89089200_2048.png) 
 
 
 
 </div>
+
+<img src="https://komarev.com/ghpvc/?username=YOURUSERNAME&label=Views&color=d4cfa3&style=for-the-badge" alt="profile views" />
