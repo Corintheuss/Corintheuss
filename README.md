@@ -12,10 +12,10 @@
 ## . . . 𝐍𝐢𝐠𝐡𝐭𝐦𝐚𝐫𝐞𝐬 𝐡𝐚𝐯𝐞 𝐭𝐡𝐞𝐢𝐫 𝐜𝐡𝐚𝐫𝐦 .
 ![image alt](https://github.com/Corintheuss/The-Corinthians-Journal/blob/1fa349b3ca3e4a5a922fbdb7451192dc1fc7c208/the-sandman-universe-nightmare-country-the-glass-house-1-1.png)
 
-🎬 ~ **CORINTHIAN'S JOURNAL**
+🎬 ~ **𝚃𝚑𝚛𝚘𝚞𝚐𝚑 𝚝𝚑𝚎 𝙽𝚒𝚐𝚑𝚝'𝚜 𝚜𝚑𝚘𝚛𝚎𝚜. . .**
 
-> “𝘐 𝘢𝘮 𝘣𝘶𝘵 𝘢 𝘮𝘰𝘳𝘢𝘭 𝘮𝘢𝘯, 𝘯𝘰𝘳 𝘢𝘮 𝘐 𝘩𝘶𝘮𝘢𝘯 𝘮𝘺𝘴𝘦𝘭𝘧.  
-> 𝘐 𝘢𝘮 𝘢 𝘯𝘪𝘨𝘩𝘵𝘮𝘢𝘳𝘦 ——— 𝘐 𝘢𝘮 𝘛𝘩𝘦 𝘾𝙤𝙧𝙞𝙣𝙩𝙝𝙞𝙖𝙣.”
+> “ 𝘐 𝘢𝘮 𝘣𝘶𝘵 𝘢 𝘮𝘰𝘳𝘢𝘭 𝘮𝘢𝘯, 𝘯𝘰𝘳 𝘢𝘮 𝘐 𝘩𝘶𝘮𝘢𝘯 𝘮𝘺𝘴𝘦𝘭𝘧.  
+> 𝘐 𝘢𝘮 𝘢 𝘯𝘪𝘨𝘩𝘵𝘮𝘢𝘳𝘦 ——— 𝘐 𝘢𝘮 𝘛𝘩𝘦 𝘾𝙤𝙧𝙞𝙣𝙩𝙝𝙞𝙖𝙣 . ”
 
 ---
 
