@@ -46,6 +46,6 @@
 
 ⓘ **𝐑𝐄𝐀𝐃 𝐒𝐓𝐑𝐀𝐖𝐏𝐀𝐆𝐄 𝐁𝐘𝐈** → [sylum.straw.page/vampire_prof](https://sylum.straw.page/vampire_prof)
 
-🎧 ▶︎•၊၊||၊|။|||||။၊|။• [Now Playing](https://open.spotify.com/track/1hYXuCb1EMgwfl3QHUeTfM?si=7476c5a0d64644ff)
+> 🎧 ▶︎•၊၊||၊|။|||||။၊|။• [Now Playing](https://open.spotify.com/track/1hYXuCb1EMgwfl3QHUeTfM?si=7476c5a0d64644ff)
 
 </div>
