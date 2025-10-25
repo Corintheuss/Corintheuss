@@ -88,11 +88,11 @@
 > 🎧 ▶︎•၊၊||၊|။|||||။၊|။• 
 
 
-<p align="center">
-  <a href="https://open.spotify.com/track/1hYXuCb1EMgwfl3QHUeTfM?si=585f5190cbde4ec2" target="_blank" rel="noopener noreferrer">
+ <p align="center">
+ ♱ <a href="https://open.spotify.com/track/1hYXuCb1EMgwfl3QHUeTfM?si=585f5190cbde4ec2" target="_blank" rel="noopener noreferrer">
     <img src="https://img.shields.io/badge/%F0%9F%A5%82%20MX.%20SINISTER%20%F0%9F%A5%82-ede8c9?style=for-the-badge&labelColor=d4cfa3&color=fffaf0" alt="MX. SINISTER">
-  </a>
-</p>
+  </a> ♱
+</p> 
 
 
 ![image alt](https://github.com/Corintheuss/Corintheuss/blob/5cfddb18afdd7b9c49253be857d4df62ba3243ea/in-awe-the-corinthian.gif)
@@ -100,7 +100,10 @@
 ---
 ════════════════════════════════════════
 
-## *✧ 𝙶𝙾𝙾𝙳-𝙱𝚈𝙴~ 𝚂𝚎𝚎 𝚢𝚘𝚞 𝚒𝚗 𝚢𝚘𝚞𝚛 𝚍𝚛𝚎𝚊𝚖𝚜... ✧*
+> ╔════════════════════════════════════════════╗
+> 
+> # *✧ 𝙶𝙾𝙾𝙳-𝙱𝚈𝙴~ 𝚂𝚎𝚎 𝚢𝚘𝚞 𝚒𝚗 𝚢𝚘𝚞𝚛 𝚍𝚛𝚎𝚊𝚖𝚜... ✧*
+> ╚════════════════════════════════════════════╝  
 
 ════════════════════════════════════════
 
