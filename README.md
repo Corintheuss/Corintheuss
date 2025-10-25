@@ -42,7 +42,7 @@
 
 ## 💬 - 𝘽𝙔𝙄  𓂃‎ ‎  ⸝⸝ '' 
 
-![image alt](https://github.com/Corintheuss/Corintheuss/blob/de8483fa33589b0e7f69624c64f59030a038ca53/tumblr_90e426b8f40186eaa6ff0eb74fd3d812_3c1d2a66_400.webp)
+![image alt](https://github.com/Corintheuss/Corintheuss/blob/ae24244b740fbd6fe0a06d82138814b4edb61b0e/WALLPAPER%20.%20BY%20ME.png)
 
 ---
 
