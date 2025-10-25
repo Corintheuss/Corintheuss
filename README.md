@@ -52,7 +52,9 @@
 
 🡻 🡻 🡻
 
-♱ [![SEA OF NIGHTMARES](https://img.shields.io/badge/SEA%20OF%20NIGHTMARES-%23e8dfb8%20→%20%23fff7d6?style=for-the-badge&labelColor=1a1a1a&color=fff7d6)](https://sylum.straw.page/vampire_prof) ♱
+♱ <a href="https://sylum.straw.page/vampire_prof">
+  <img src="https://img.shields.io/badge/🥂%20SEA%20OF%20NIGHTMARES%20🥂-%23e8dfb8?style=for-the-badge&labelColor=d4cfa3&color=fff7d6" alt="SEA OF NIGHTMARES">
+</a> ♱
 
 𓆩༺✧༻𓆪 
 
@@ -83,9 +85,9 @@
 > ✧╚═══════════════✧═══════════════╝✧ 
 
 
-> 🎧 ▶︎•၊၊||၊|။|||||။၊|။• [𝙈𝙓. 𝙎𝙄𝙉𝙄𝙎𝙏𝙀𝙍](https://open.spotify.com/track/1hYXuCb1EMgwfl3QHUeTfM?si=7476c5a0d64644ff)
-
-# . . .
+> 🎧 ▶︎•၊၊||၊|။|||||။၊|။• <a href="https://open.spotify.com/track/1hYXuCb1EMgwfl3QHUeTfM?si=7476c5a0d64644ff">
+  <img src="https://img.shields.io/badge/🥂%20MX.%20SINISTER%20🥂-ede8c9?style=for-the-badge&labelColor=d4cfa3&color=fffaf0" alt="MX. SINISTER">
+</a>
 
 ![image alt](https://github.com/Corintheuss/Corintheuss/blob/5cfddb18afdd7b9c49253be857d4df62ba3243ea/in-awe-the-corinthian.gif)
 
