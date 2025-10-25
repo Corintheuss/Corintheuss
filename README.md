@@ -23,7 +23,6 @@
 ⓘ  𝐑𝐄𝐀𝐃 𝐒𝐓𝐑𝐀𝐖𝐏𝐀𝐆𝐄 𝐁𝐘𝐈 . https://sylum.straw.page/vampire_prof
 
 
-🎧 [Now Playing] <iframe data-testid="embed-iframe" style="border-radius:12px" src="https://open.spotify.com/embed/track/1hYXuCb1EMgwfl3QHUeTfM?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
-
+🎧 [Now Playing](https://open.spotify.com/track/1hYXuCb1EMgwfl3QHUeTfM?si=7476c5a0d64644ff)
 
 </div>
