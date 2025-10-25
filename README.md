@@ -11,7 +11,7 @@
 ---
 
 ## . . . 𝐍𝐢𝐠𝐡𝐭𝐦𝐚𝐫𝐞𝐬 𝐡𝐚𝐯𝐞 𝐭𝐡𝐞𝐢𝐫 𝐜𝐡𝐚𝐫𝐦 .
-![image alt](https://github.com/Corintheuss/The-Corinthians-Journal/blob/1fa349b3ca3e4a5a922fbdb7451192dc1fc7c208/the-sandman-universe-nightmare-country-the-glass-house-1-1.png)
+![image alt](https://github.com/Corintheuss/Corintheuss/blob/d75ab82138f4fdfa1c4fb81e87fccdcf73583e97/WALLPAPER%202.png)
 
 ## 🎬 ~ **𝚃𝚑𝚛𝚘𝚞𝚐𝚑 𝚝𝚑𝚎 𝚂𝚑𝚘𝚛𝚎𝚜 𝚘𝚏 𝙽𝚒𝚐𝚑𝚝 . . .**
 
@@ -43,8 +43,8 @@
 
 ## 💬 - 𝘽𝙔𝙄  𓂃‎ ‎  ⸝⸝ '' 
 
-![image alt](https://github.com/Corintheuss/Corintheuss/blob/fd248092b7584de2f8ba5f0b94f964bbed3222b6/tumblr_017cbd0ade03e8fdcf08a902cc7f680c_490ff2a1_540.webp)
-![image alt](https://github.com/Corintheuss/Corintheuss/blob/ae24244b740fbd6fe0a06d82138814b4edb61b0e/WALLPAPER%20.%20BY%20ME.png)
+![image alt](https://github.com/Corintheuss/Corintheuss/blob/d75ab82138f4fdfa1c4fb81e87fccdcf73583e97/tumblr_5fac6f6f334bab1737cb584fba1da4fa_20796a2c_2048.png)
+![image alt](https://github.com/Corintheuss/Corintheuss/blob/d75ab82138f4fdfa1c4fb81e87fccdcf73583e97/WALLPAPER.png)
 
 ---
 
@@ -79,8 +79,21 @@
 > 🩸╚═══════════════✧═══════════════╝🩸  
 
 
-> 🎧 ▶︎•၊၊||၊|။|||||။၊|။• [Now Playing](https://open.spotify.com/track/1hYXuCb1EMgwfl3QHUeTfM?si=7476c5a0d64644ff)
+> 🎧 ▶︎•၊၊||၊|။|||||။၊|။• [𝙈𝙓. 𝙎𝙄𝙉𝙄𝙎𝙏𝙀𝙍](https://open.spotify.com/track/1hYXuCb1EMgwfl3QHUeTfM?si=7476c5a0d64644ff)
 
-![image alt](https://github.com/Corintheuss/Corintheuss/blob/d022b4c64b163d3e577c2258e7a5c7bd1ac40538/tumblr_280223884e4cb3c377cf0829a21ca4cd_73c70190_500.webp)
+> . . .
+
+![image alt](https://github.com/Corintheuss/Corintheuss/blob/d75ab82138f4fdfa1c4fb81e87fccdcf73583e97/tumblr_78aa5fe32461a8b9d8efbfeb688fde81_90c778da_400.webp)
+
+---
+════════════════════════════════════════
+
+## *✧ 𝙶𝙾𝙾𝙳-𝙱𝚈𝙴~ 𝚂𝚎𝚎 𝚢𝚘𝚞 𝚒𝚗 𝚢𝚘𝚞𝚛 𝚍𝚛𝚎𝚊𝚖𝚜... ✧*
+
+════════════════════════════════════════
+
+![image alt](https://github.com/Corintheuss/Corintheuss/blob/d75ab82138f4fdfa1c4fb81e87fccdcf73583e97/tumblr_c0a2f4ad26f5416e3f6516f16992c286_89089200_2048.png) 
+
+
 
 </div>
