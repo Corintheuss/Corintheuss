@@ -1,6 +1,6 @@
 # 🕭 The-Corinthians-Journal
 𓏵 · ″𝘏𝘢𝘷𝘦 𝘺𝘰𝘶 𝘦𝘷𝘦𝘳 𝙙𝙧𝙚𝙖𝙢𝙚𝙙 𝘰𝘧 𝘮𝘦.ᐣ″
-  <p><i>"Mentally in the Batcave since birth."</i></p>
+  <p><i>"BORN FROM THE SHORES OF NIGHT."</i></p>
 ## . . .
 ![image alt](https://github.com/Corintheuss/The-Corinthians-Journal/blob/1fa349b3ca3e4a5a922fbdb7451192dc1fc7c208/the-sandman-universe-nightmare-country-the-glass-house-1-1.png)
 
