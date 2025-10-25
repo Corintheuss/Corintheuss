@@ -50,7 +50,7 @@
 
 ⓘ **𝐑𝐄𝐀𝐃 𝐒𝐓𝐑𝐀𝐖𝐏𝐀𝐆𝐄 𝐁𝐘𝐈**
 
-🡻 🡻 🡻
+▼ ▼ ▼
 
 ♱ <a href="https://sylum.straw.page/vampire_prof">
   <img src="https://img.shields.io/badge/🥂%20SEA%20OF%20NIGHTMARES%20🥂-%23e8dfb8?style=for-the-badge&labelColor=d4cfa3&color=fff7d6" alt="SEA OF NIGHTMARES">
