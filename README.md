@@ -3,7 +3,7 @@
 ## . . .
 ![image alt](https://github.com/Corintheuss/The-Corinthians-Journal/blob/66b21b5967c1c1a8b33ac395a7956b53352ea0e9/a58d2836c8a1689a20a63f65d501c67c-removebg-preview.png)
 
-⏱ ~ CORINTHIAN'S JOURNAL . 
+🎬 ~ CORINTHIAN'S JOURNAL . 
 # “𝘐 𝘢𝘮 𝘣𝘶𝘵 𝘢 𝘮𝘰𝘳𝘢𝘭 𝘮𝘢𝘯, 𝘯𝘰𝘳 𝘢𝘮 𝘐 𝘩𝘶𝘮𝘢𝘯 𝘪𝘵𝘴𝘦𝘭𝘧. 𝘐 𝘢𝘮 𝘢 𝘯𝘪𝘨𝘩𝘵𝘮𝘢𝘳𝘦 — 𝘐 𝘢𝘮 𝘛𝘩𝘦 𝘊𝘰𝘳𝘪𝘯𝘵𝘩𝘪𝘢𝘯.”
 
 
