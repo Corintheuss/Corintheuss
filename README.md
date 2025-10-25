@@ -1,7 +1,7 @@
 <div align="center">
 
 
-# 🕭  The Corinthians Journal
+# 🕭 𓏵 𝔗𝔥𝔢 ℭ𝔬𝔯𝔦𝔫𝔱𝔥𝔦𝔞𝔫'𝔰 𝔑𝔬𝔱𝔢𝔟𝔬𝔬𝔨 ,
 𓏵 · ″𝘏𝘢𝘷𝘦 𝘺𝘰𝘶 𝘦𝘷𝘦𝘳 𝙙𝙧𝙚𝙖𝙢𝙚𝙙 𝘰𝘧 𝘮𝘦.ᐣ″
 
 ## . . .
@@ -14,15 +14,15 @@
 
   𓉸  𝟏𝟐.𝟎𝟏  ݁  .       𝙄𝙉𝙁𝙊  𓂃    ｡ ⸝⸝ ˚
   -----------------------------------------
-𓊆❤︎𓊇 ┆ 𝘊𝘖𝘙𝘐𝘕 . 𝘛𝘏𝘌𝘜𝘚   ，  愛   —  𝘈𝘕𝘠 𝘗𝘙𝘕𝘚 ִ ࣪﹒☎︎ ₊‧
+𓊆❤︎𓊇 ┆ 𝘊𝘖𝘙𝘐𝘕 . 𝘛𝘏𝘌𝘜𝘚   ，  愛   —  𝘈𝘕𝘠 𝘗𝘙𝘕𝘚 . ☎︎ ₊‧
 -
 ˖   ✦  ›  mbti 𓂃 ★ @silly.chaotic.person on 𝘿𝙄𝙎𝘾𝙊𝙍𝘿 ~ 𓂃
 -
-𝐇𝐄┃𝐇𝐈𝐌 𓂃𓂃 𓊆𝟐𝙉𝘿𓊇 𝘾𝙊𝙍𝙄𝙉𝙏𝙃𝙄𝘼𝙉 𝙁𝙄𝘾𝙏𝙆𝙄𝙉 ════ ❛❛ 𝗜𝘁'𝘀 𝗮𝗹𝗹 𝗮𝗯𝗼𝘂𝘁 𝘁𝗵𝗲 𝗲𝘆𝗲𝘀. ❜❜
+𝐻𝐸 / 𝐻𝐼𝑀 ノ 𓂃𓂃 𓊆𝟐𝙉𝘿𓊇 𝘾𝙊𝙍𝙄𝙉𝙏𝙃𝙄𝘼𝙉 𝙁𝙄𝘾𝙏𝙆𝙄𝙉 ════ ❛❛ 𝗜𝘁'𝘀 𝗮𝗹𝗹 𝗮𝗯𝗼𝘂𝘁 𝘁𝗵𝗲 𝗲𝘆𝗲𝘀. ❜❜
 -
 ⓘ  𝐑𝐄𝐀𝐃 𝐒𝐓𝐑𝐀𝐖𝐏𝐀𝐆𝐄 𝐁𝐘𝐈 . https://sylum.straw.page/vampire_prof
 
 
-🎧 [Now Playing](https://open.spotify.com/track/1hYXuCb1EMgwfl3QHUeTfM?si=7476c5a0d64644ff)
+🎧 ~ [Now Playing](https://open.spotify.com/track/1hYXuCb1EMgwfl3QHUeTfM?si=7476c5a0d64644ff)
 
 </div>
