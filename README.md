@@ -85,10 +85,11 @@
 > ✧╚═══════════════✧═══════════════╝✧ 
 
 
-> 🎧 ▶︎•၊၊||၊|။|||||။၊|။• <a href="https://open.spotify.com/track/1hYXuCb1EMgwfl3QHUeTfM?si=40dc675a675e493f">
-  <img src="https://img.shields.io/badge/%F0%9F%A5%82%20MX.%20SINISTER%20%F0%9F%A5%82-ede8c9?style=for-the-badge&labelColor=d4cfa3&color=fffaf0" alt="MX. SINISTER">
-</a>
+> 🎧 ▶︎•၊၊||၊|။|||||။၊|။• 
 
+<p align="center">🥂 <a href="YOUR_SPOTIFY_LINK" target="_blank" rel="noopener noreferrer">
+  <img src="https://img.shields.io/badge/MX.%20SINISTER-fffaf0?style=for-the-badge&labelColor=d4cfa3&color=fffaf0" alt="MX. SINISTER">
+</a> 🥂</p>
 
 ![image alt](https://github.com/Corintheuss/Corintheuss/blob/5cfddb18afdd7b9c49253be857d4df62ba3243ea/in-awe-the-corinthian.gif)
 
