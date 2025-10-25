@@ -1,5 +1,6 @@
 <div align="center">
-  
+
+![image alt](https://github.com/Corintheuss/Corintheuss/blob/d022b4c64b163d3e577c2258e7a5c7bd1ac40538/tumblr_c0a2f4ad26f5416e3f6516f16992c286_89089200_2048.png)
 # 𓆩 ♱ 𓆪 𝔗𝔥𝔢 ℭ𝔬𝔯𝔦𝔫𝔱𝔥𝔦𝔞𝔫𝔰 𝔑𝔬𝔱𝔢𝔟𝔬𝔬𝔨 𓆩 ♱ 𓆪
 
 
@@ -42,6 +43,7 @@
 
 ## 💬 - 𝘽𝙔𝙄  𓂃‎ ‎  ⸝⸝ '' 
 
+![image alt](https://github.com/Corintheuss/Corintheuss/blob/fd248092b7584de2f8ba5f0b94f964bbed3222b6/tumblr_017cbd0ade03e8fdcf08a902cc7f680c_490ff2a1_540.webp)
 ![image alt](https://github.com/Corintheuss/Corintheuss/blob/ae24244b740fbd6fe0a06d82138814b4edb61b0e/WALLPAPER%20.%20BY%20ME.png)
 
 ---
@@ -78,5 +80,7 @@
 
 
 > 🎧 ▶︎•၊၊||၊|။|||||။၊|။• [Now Playing](https://open.spotify.com/track/1hYXuCb1EMgwfl3QHUeTfM?si=7476c5a0d64644ff)
+
+![image alt](https://github.com/Corintheuss/Corintheuss/blob/d022b4c64b163d3e577c2258e7a5c7bd1ac40538/tumblr_280223884e4cb3c377cf0829a21ca4cd_73c70190_500.webp)
 
 </div>
