@@ -1,7 +1,7 @@
 <div align="center">
 
 
-# 🕭 - The Corinthians Journal
+# 🕭  The Corinthians Journal
 𓏵 · ″𝘏𝘢𝘷𝘦 𝘺𝘰𝘶 𝘦𝘷𝘦𝘳 𝙙𝙧𝙚𝙖𝙢𝙚𝙙 𝘰𝘧 𝘮𝘦.ᐣ″
 
 ## . . .
@@ -21,5 +21,9 @@
 𝐇𝐄┃𝐇𝐈𝐌 𓂃𓂃 𓊆𝟐𝙉𝘿𓊇 𝘾𝙊𝙍𝙄𝙉𝙏𝙃𝙄𝘼𝙉 𝙁𝙄𝘾𝙏𝙆𝙄𝙉 ════ ❛❛ 𝗜𝘁'𝘀 𝗮𝗹𝗹 𝗮𝗯𝗼𝘂𝘁 𝘁𝗵𝗲 𝗲𝘆𝗲𝘀. ❜❜
 -
 ⓘ  𝐑𝐄𝐀𝐃 𝐒𝐓𝐑𝐀𝐖𝐏𝐀𝐆𝐄 𝐁𝐘𝐈 . https://sylum.straw.page/vampire_prof
+
+
+🎧 [Now Playing] <iframe data-testid="embed-iframe" style="border-radius:12px" src="https://open.spotify.com/embed/track/1hYXuCb1EMgwfl3QHUeTfM?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+
 
 </div>
