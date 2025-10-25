@@ -114,4 +114,4 @@
 
 </div>
 
-<img src="https://komarev.com/ghpvc/?username=Corintheuss&label=Nightmare%20Voyeurs%20👁️&color=ede8c9&style=for-the-badge" />
+<img src="https://komarev.com/ghpvc/?username=Corintheuss&label=Mortal%20Dreamers%20👁️&color=ede8c9&style=for-the-badge" />
