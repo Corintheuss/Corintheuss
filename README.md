@@ -114,4 +114,4 @@
 
 </div>
 
-<img src="https://komarev.com/ghpvc/?username=YOURUSERNAME&label=Views&color=d4cfa3&style=for-the-badge" alt="profile views" />
+<img src="https://komarev.com/ghpvc/?username=Corintheuss&label=Nightmare%20Voyeurs%20👁️&color=ede8c9&style=for-the-badge" />
