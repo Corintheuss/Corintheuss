@@ -44,7 +44,7 @@
 ## 💬 - 𝘽𝙔𝙄  𓂃‎ ‎  ⸝⸝ '' 
 
 ![image alt](https://github.com/Corintheuss/Corintheuss/blob/d75ab82138f4fdfa1c4fb81e87fccdcf73583e97/tumblr_5fac6f6f334bab1737cb584fba1da4fa_20796a2c_2048.png)
-![image alt](https://github.com/Corintheuss/Corintheuss/blob/d75ab82138f4fdfa1c4fb81e87fccdcf73583e97/WALLPAPER.png)
+![image alt](https://github.com/Corintheuss/Corintheuss/blob/989a435c9d3ae010b0f58fb77ba0d03e6c0a5d44/WALLPAPER.png)
 
 ---
 
