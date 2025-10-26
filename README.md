@@ -93,12 +93,12 @@
     <img src="https://img.shields.io/badge/%F0%9F%A5%82%20MX.%20SINISTER%20%F0%9F%A5%82-ede8c9?style=for-the-badge&labelColor=d4cfa3&color=fffaf0" alt="MX. SINISTER">
   </a> ♱
 
-♱ <a href="https://https://open.spotify.com/track/45B6ELT8vbhnlnfxXHW1SR?si=69d668524ae14991" target="_blank" rel="noopener noreferrer">
+♱ <a href="https://open.spotify.com/track/45B6ELT8vbhnlnfxXHW1SR?si=6ab15a1786374640" target="_blank" rel="noopener noreferrer">
     <img src="https://img.shields.io/badge/%F0%9F%A5%82%20PLAYING%20DEAD%20%F0%9F%A5%82-ede8c9?style=for-the-badge&labelColor=d4cfa3&color=fffaf0" alt="MX. SINISTER">
   </a> ♱
 
 
-♱ <a href="https://https://open.spotify.com/track/6BkSkp1HNMcIf4gGwDcY6k?si=a581034003884769" target="_blank" rel="noopener noreferrer">
+♱ <a href="https://open.spotify.com/track/6BkSkp1HNMcIf4gGwDcY6k?si=a581034003884769" target="_blank" rel="noopener noreferrer">
     <img src="https://img.shields.io/badge/%F0%9F%A5%82%20CONCERTINA%20BALLERINA%20%F0%9F%A5%82-ede8c9?style=for-the-badge&labelColor=d4cfa3&color=fffaf0" alt="CONCERTINA BALLERINA">
   </a> ♱
    
