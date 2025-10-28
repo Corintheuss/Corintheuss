@@ -168,7 +168,7 @@
 > 
 > ⭐ 𝘚𝘢𝘨𝘦  𓂃 · *Aggressively pats your head*
 > 
-> ⭐ 𝘑𝘢𝘴𝘱𝘦𝘳  𓂃 · *"HII... BLEHH!!! hii jester boy!!! :3"*
+> ⭐ 𝘌𝘣𝘰𝘯𝘺  𓂃 · *"HII... BLEHH!!! hii jester boy!!! :3"*
 > 
 > ⭐ 𝘚𝘢𝘷𝘪𝘰𝘶𝘳  𓂃 · *Pokes and runs away*
 > 
