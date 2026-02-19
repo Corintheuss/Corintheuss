@@ -160,7 +160,9 @@
 ![image alt](https://github.com/Corintheuss/The-Corinthian/blob/e7a390004bbb39eaca459c4c1b06fc9f120d21ee/tumblr_3f50765be503c324db4fbe1817cb83c4_68c787c6_1280.png)
 ---
 
-> ⭐ 𝘑𝘹𝘤𝘬𝘪𝘦  𓂃 · *"SILLY PIRATE MAN SPOTTED!!!" points at you*
+> ⭐ 𝚂𝚞𝚐𝚞𝚛𝚞 𓂃 · *"THAT'S MY WIFE! HI! :3"*
+> 
+> ⭐ 𝘊𝘶𝘵𝘭𝘦𝘳  𓂃 · *"SILLY PIRATE MAN SPOTTED!!!" points at you*
 > 
 > ⭐ 𝘐𝘢𝘯  𓂃 · *Tackles and screams at your ear/j*
 > 
