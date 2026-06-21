@@ -160,11 +160,11 @@
 ![image alt](https://github.com/Corintheuss/The-Corinthian/blob/e7a390004bbb39eaca459c4c1b06fc9f120d21ee/tumblr_3f50765be503c324db4fbe1817cb83c4_68c787c6_1280.png)
 ---
 
-> ⭐ 𝘚𝘶𝘨𝘶𝘳𝘶 𓂃 · *"THAT'S MY WIFE! HI! :3"*
+> ⭐ 𝘓𝘶𝘬𝘦 / 𝘚𝘶𝘨𝘶𝘳𝘶 𓂃 · *"THAT'S MY WIFE! HI! :3"*
 > 
-> ⭐ 𝘊𝘶𝘵𝘭𝘦𝘳  𓂃 · *"SILLY PIRATE MAN SPOTTED!!!" points at you*
+> ⭐ 𝘑𝘢𝘤𝘬 / 𝘊𝘶𝘵𝘭𝘦𝘳  𓂃 · *"SILLY PIRATE MAN SPOTTED!!! HI BROTHA—" points at you*
 > 
-> ⭐ 𝘐𝘢𝘯  𓂃 · *Tackles and screams at your ear/j*
+> ⭐ 𝘐𝘢𝘯  𓂃 · *Hi Ian... smirks devilishly...*
 > 
 > ⭐ 𝘊𝘳𝘰𝘸𝘭𝘦𝘺  𓂃 · *"HEY-! STOP STEALING MY TRINKETS!!!"*
 > 
@@ -175,6 +175,8 @@
 > ⭐ 𝘚𝘢𝘷𝘪𝘰𝘶𝘳  𓂃 · *Pokes and runs away*
 > 
 > ⭐ 𝘈𝘳𝘪𝘴  𓂃 · *Throws bombs and makes you explode*
+> 
+> ⭐ 7𝘯7 𓂃 · *"Hope you're okay!!!"*
 > 
 > ⭐ 𝘛𝘰𝘣𝘪𝘢𝘴  𓂃 · *Gifts you lots of cats*
 > 
@@ -188,11 +190,11 @@
 > 
 > ⭐ 𝘝𝘦𝘯𝘯𝘺  𓂃 · *"I'M UNDERPAID, BOSS!!!/j"*
 > 
-> ⭐ 𝘛𝘉  𓂃 · *Claps hands and sheds a happy tear*
+> ⭐ 𝘛𝘉  𓂃 · *"Hi bro wassuh!"*
 > 
 > ⭐ 𝘒𝘢𝘻𝘦  𓂃 · *"Heyyy, buddy!" grins and winks*
 > 
-> ⭐ 𝘚𝘺𝘴𝘵𝘦𝘮  𓂃 · *"AHH IT'S THE CREATURE!!!" gets biten*
+> ⭐ 𝘚𝘺𝘴𝘵𝘦𝘮  𓂃 · *"AHH IT'S THE CREATURE!!!" gets bitten*
 > 
 > ⭐ 𝘝𝘦𝘦  𓂃 · *Pats your head gently*
 > 
