@@ -184,7 +184,7 @@
 > 
 > ⭐ 𝘔𝘢𝘪  𓂃 · *Steals your RH Diamonds.../silly*
 > 
-> ⭐ 𝘒𝘢𝘳𝘮𝘢  𓂃 · *"Mama mia..." eats your art*
+> ⭐ 𝘉𝘦𝘦  𓂃 · *"Mama mia..." eats your art*
 > 
 > ⭐ 𝘈𝘭𝘧𝘳𝘦𝘥  𓂃 · *Throws lots of manga at you*
 > 
