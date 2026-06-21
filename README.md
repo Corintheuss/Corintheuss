@@ -164,7 +164,7 @@
 > 
 > ⭐ 𝘑𝘢𝘤𝘬 / 𝘊𝘶𝘵𝘭𝘦𝘳  𓂃 · *"SILLY PIRATE MAN SPOTTED!!! HI BROTHA—" points at you*
 > 
-> ⭐ 𝘐𝘢𝘯  𓂃 · *Hi Ian... smirks devilishly...*
+> ⭐ 𝘐𝘢𝘯  𓂃 · *"Hi Ian... smirks devilishly..."*
 > 
 > ⭐ 𝘊𝘳𝘰𝘸𝘭𝘦𝘺  𓂃 · *"HEY-! STOP STEALING MY TRINKETS!!!"*
 > 
