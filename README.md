@@ -160,7 +160,7 @@
 ![image alt](https://github.com/Corintheuss/The-Corinthian/blob/e7a390004bbb39eaca459c4c1b06fc9f120d21ee/tumblr_3f50765be503c324db4fbe1817cb83c4_68c787c6_1280.png)
 ---
 
-> ⭐ 𝘓𝘶𝘬𝘦 / 𝘚𝘶𝘨𝘶𝘳𝘶 𓂃 · *"THAT'S MY WIFE! HI! :3"*
+> ⭐ 𝘓𝘶𝘬𝘦 / 𝘚𝘶𝘨𝘶𝘳𝘶 𓂃 · *"AWESOMEEE FRIEND HI!!! :3"*
 > 
 > ⭐ 𝘑𝘢𝘤𝘬 / 𝘊𝘶𝘵𝘭𝘦𝘳  𓂃 · *"SILLY PIRATE MAN SPOTTED!!! HI BROTHA—" points at you*
 > 
