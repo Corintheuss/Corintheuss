@@ -9,9 +9,7 @@
  
  <img src="https://komarev.com/ghpvc/?username=Corintheuss&label=Artful's%20Puppets%20★&color=a3a3a3&style=for-the-badge" />
  ‎ 
- ‎ 
- 
-. 𝄞 .
+ ‎
 ‎ 
  
 
@@ -25,8 +23,6 @@
  ‎⌗ ⊹ ࣪ ˖‎‎  ᴛʜᴀɴᴋ ‎ ‎ ‎ ʏᴏᴜ ‎ ♪♫ ๋ ࣭ ⭑
 
 ★ ‎ ‎ ‎ <a href="https://github.com/pt-hall-of-media">ᴘᴛ'ꜱ ʜᴀʟʟ ᴏꜰ ᴍᴇᴅɪᴀ</a>‎  .‎  <a href="https://github.com/title-town">ᴛɪᴛʟᴇ-ᴛᴏᴡɴ</a> ‎ .‎  <a href="https://github.com/pt-nominations">ᴘᴛ-ɴᴏᴍɪɴᴀᴛɪᴏɴꜱ</a> ‎ .‎  <a href="https://github.com/pt-walk-of-fame">ᴘᴛ-ᴡᴀʟᴋ-ᴏꜰ-ꜰᴀᴍᴇ</a> ‎ .‎  <a href="https://github.com/pt-medals">ᴘᴛ-ᴍᴇᴅᴀʟꜱ</a> ‎ . ‎ <a href="https://github.com/ponychievements">ᴘᴏɴʏᴄʜɪᴇᴠᴇᴍᴇɴᴛꜱ</a> ‎ .‎  <a href="https://github.com/pt-fashion">ᴘᴛ-ꜰᴀꜱʜɪᴏɴ</a> ‎ . ‎ & ‎ <a href="https://github.com/pt-contributers">ᴘᴛ-ᴄᴏɴᴛʀɪʙᴜᴛᴇʀꜱ!</a>‎ ‎ ‎  ★
-
-. . .
 
 
 
