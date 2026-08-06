@@ -22,7 +22,7 @@
 
  ‎⌗ ⊹ ࣪ ˖‎‎  ᴛʜᴀɴᴋ ‎ ‎ ‎ ʏᴏᴜ ‎ ♪♫ ๋ ࣭ ⭑
 
-★ ‎ ‎ ‎ <a href="https://github.com/pt-hall-of-media">ᴘᴛ'ꜱ ʜᴀʟʟ ᴏꜰ ᴍᴇᴅɪᴀ</a>‎  .‎  <a href="https://github.com/title-town">ᴛɪᴛʟᴇ-ᴛᴏᴡɴ</a> ‎ .‎  <a href="https://github.com/pt-nominations">ᴘᴛ-ɴᴏᴍɪɴᴀᴛɪᴏɴꜱ</a> ‎ .‎  <a href="https://github.com/pt-walk-of-fame">ᴘᴛ-ᴡᴀʟᴋ-ᴏꜰ-ꜰᴀᴍᴇ</a> ‎ .‎  <a href="https://github.com/pt-medals">ᴘᴛ-ᴍᴇᴅᴀʟꜱ</a> ‎ . ‎ <a href="https://github.com/ponychievements">ᴘᴏɴʏᴄʜɪᴇᴠᴇᴍᴇɴᴛꜱ</a> ‎ .‎  <a href="https://github.com/pt-fashion">ᴘᴛ-ꜰᴀꜱʜɪᴏɴ</a> ‎ . ‎ & ‎ <a href="https://github.com/pt-contributers">ᴘᴛ-ᴄᴏɴᴛʀɪʙᴜᴛᴇʀꜱ!</a>‎ ‎ ‎  ★
+★ ‎ ‎ ‎ <a href="https://github.com/pt-hall-of-media">ᴘᴛ'ꜱ ʜᴀʟʟ ᴏꜰ ᴍᴇᴅɪᴀ</a>‎  .‎  <a href="https://github.com/title-town">ᴛɪᴛʟᴇ-ᴛᴏᴡɴ</a> ‎ .‎  <a href="https://github.com/pt-nominations">ᴘᴛ-ɴᴏᴍɪɴᴀᴛɪᴏɴꜱ</a> ‎ .‎  <a href="https://github.com/pt-walk-of-fame">ᴘᴛ-ᴡᴀʟᴋ-ᴏꜰ-ꜰᴀᴍᴇ</a> ‎ .‎  <a href="https://github.com/pt-medals">ᴘᴛ-ᴍᴇᴅᴀʟꜱ</a> ‎ . ‎ <a href="https://github.com/ponychievements">ᴘᴏɴʏᴄʜɪᴇᴠᴇᴍᴇɴᴛꜱ</a> ‎ .‎  <a href="https://github.com/pt-fashion">ᴘᴛ-ꜰᴀꜱʜɪᴏɴ</a> ‎ . ‎ <a href="https://github.com/pt-characters">ᴘᴛ-ᴄʜᴀʀᴀᴄᴛᴇʀꜱ</a> ‎ ‎ & ‎ <a href="https://github.com/pt-contributers">ᴘᴛ-ᴄᴏɴᴛʀɪʙᴜᴛᴇʀꜱ!</a>‎ ‎ ‎  ★
 
 
 
