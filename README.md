@@ -7,8 +7,13 @@
 
 
  
- <img src="https://komarev.com/ghpvc/?username=Corintheuss&label=Artful's%20Puppets%20★&color=a3a3a3&style=for-the-badge" />
- ‎ 
+ 
+ 
+
+★ <img src="https://komarev.com/ghpvc/?username=Corintheuss&label=Artful's%20Puppets%20★&color=7a7a7a&labelColor=000000&style=for-the-badge" />
+
+
+
  ‎
 ‎ 
  
