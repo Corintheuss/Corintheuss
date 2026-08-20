@@ -26,7 +26,7 @@ $\color{#910000}{\text{ℌ𝔢ㅤ.ㅤℌ𝔦𝔪   ㅤㅤ⋮  ㅤㅤ ℭ  ㅤ+  
 $\color{#730000}{\text{✦}}$
 <br />
 <br />
-$\color{#660000}{\text{𝐒-𝐀𝐅𝐊ㅤ‿‿ㅤ𝐖𝟐𝐈}}$
+$\color{#660000}{\text{𝐒-𝐀𝐅𝐊ㅤ‿‿ㅤ𝐖𝟐𝐈ㅤ‿‿ㅤ𝐃𝐎 𝐍𝐎𝐓 𝐂𝐎𝐏𝐘 𝐏𝐎𝐍𝐈𝐄𝐒}}$
 
 <img src="https://github.com/Corintheuss/The-Corinthian/blob/e7a390004bbb39eaca459c4c1b06fc9f120d21ee/tumblr_3f50765be503c324db4fbe1817cb83c4_68c787c6_1280.png" width="600" height="600" />
 
