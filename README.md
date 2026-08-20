@@ -1,8 +1,8 @@
 <div align="center">
   
 <img src="https://komarev.com/ghpvc/?username=Corintheuss&label=PATHETIC%20PEASANTS%20🍷&color=7A071E&style=for-the-badge" />
-
-![image alt](https://github.com/Corintheuss/The-Corinthian/blob/a695f816568834932a00d8970c5b1e91302e9cec/tumblr_edb5a919ad5ae4df37aa90550bb0bd8d_2e252f1a_2048.png)
+<br />
+<img src="https://github.com/Corintheuss/The-Corinthian/blob/a695f816568834932a00d8970c5b1e91302e9cec/tumblr_edb5a919ad5ae4df37aa90550bb0bd8d_2e252f1a_2048.png" width="700" height="300" />
 
 <img src="Untitled473_20260820160814.png" width="300" height="300" />
 
@@ -20,10 +20,10 @@ $\color{#730000}{\text{Wip , busy + kinda busy ? mostly s-afk or off-tab!}}$
 <br />
 $\color{#520000}{\text{w2i so i wont miss anything}}$
 
-![image alt](https://github.com/Corintheuss/The-Corinthian/blob/e7a390004bbb39eaca459c4c1b06fc9f120d21ee/tumblr_3f50765be503c324db4fbe1817cb83c4_68c787c6_1280.png)
+<img src="https://github.com/Corintheuss/The-Corinthian/blob/e7a390004bbb39eaca459c4c1b06fc9f120d21ee/tumblr_3f50765be503c324db4fbe1817cb83c4_68c787c6_1280.png" width="600" height="600" />
 
 
-![image alt](https://github.com/Corintheuss/The-Corinthian/blob/a695f816568834932a00d8970c5b1e91302e9cec/tumblr_f313ef6178ee7be9ec8a497d79bc68cb_10d4389b_2048.png)
+<img src="https://github.com/Corintheuss/The-Corinthian/blob/a695f816568834932a00d8970c5b1e91302e9cec/tumblr_edb5a919ad5ae4df37aa90550bb0bd8d_2e252f1a_2048.png" width="700" height="300" />
 
 
 </div>
