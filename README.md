@@ -17,16 +17,16 @@
 
 <img src="https://github.com/Corintheuss/The-Corinthian/blob/e7a390004bbb39eaca459c4c1b06fc9f120d21ee/tumblr_3f50765be503c324db4fbe1817cb83c4_68c787c6_1280.png" width="600" height="600" />
 
-$\color{#BD0000}{\text{Sukuna‎  / ‎ CorinㅤㅤSukugo Pilledㅤㅤ︵ ㅤThe King of Curses}}$
+$\color{#BD0000}{\text{𝐒𝐮𝐤𝐮𝐧𝐚‎  / ‎ 𝐂𝐨𝐫𝐢𝐧ㅤㅤ𝐒𝐮𝐤𝐮𝐠𝐨 𝐏𝐢𝐥𝐥𝐞𝐝ㅤㅤ︵ ㅤ𝔗𝔥𝔢 𝔎𝔦𝔫𝔤 𝔬𝔣 ℭ𝔲𝔯𝔰𝔢𝔰}}$
 <br />
 <br />
-$\color{#910000}{\text{Heㅤ.ㅤHim   ㅤㅤ⋮  ㅤㅤ C  ㅤ+  ㅤH  ㅤenc}}$
+$\color{#910000}{\text{ℌ𝔢ㅤ.ㅤℌ𝔦𝔪   ㅤㅤ⋮  ㅤㅤ ℭ  ㅤ+  ㅤℌ  ㅤ𝔢𝔫𝔠}}$
 <br />
 <br />
 $\color{#730000}{\text{✦}}$
 <br />
 <br />
-$\color{#660000}{\text{S-AFKㅤ‿‿ㅤW2I}}$
+$\color{#660000}{\text{𝐒-𝐀𝐅𝐊ㅤ‿‿ㅤ𝐖𝟐𝐈}}$
 
 <img src="https://github.com/Corintheuss/The-Corinthian/blob/e7a390004bbb39eaca459c4c1b06fc9f120d21ee/tumblr_3f50765be503c324db4fbe1817cb83c4_68c787c6_1280.png" width="600" height="600" />
 
