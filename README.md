@@ -2,7 +2,7 @@
   
 <img src="https://github.com/Corintheuss/The-Corinthian/blob/a695f816568834932a00d8970c5b1e91302e9cec/tumblr_edb5a919ad5ae4df37aa90550bb0bd8d_2e252f1a_2048.png" width="700" height="300" />
 <br />
-<img src="https://github-view-counter.vercel.app/api?username=Corintheuss&label=PATHETIC%20PEASANTS%20🍷&layout=split&labelBgColor=%233D0612&bgColor=%237A071E&color=%23FFFFFF&style=square&t=1" />
+<img src="https://github-view-counter.vercel.app/api?username=Corintheuss&label=PATHETIC%20PEASANTS%20🍷&layout=split&labelBgColor=%233D0612&bgColor=%237A071E&color=%23FFFFFF&style=square&t=999" />
 <br />
 
 <img src="Untitled473_20260820160814.png" width="300" height="300" />
