@@ -17,7 +17,7 @@
 
 <img src="https://github.com/Corintheuss/The-Corinthian/blob/e7a390004bbb39eaca459c4c1b06fc9f120d21ee/tumblr_3f50765be503c324db4fbe1817cb83c4_68c787c6_1280.png" width="600" height="600" />
 
-$\color{#BD0000}{\text{SukunaㅤㅤSukugo Pilledㅤㅤ︵ ㅤThe King of Curses}}$
+$\color{#BD0000}{\text{Sukuna‎  / ‎ CorinㅤㅤSukugo Pilledㅤㅤ︵ ㅤThe King of Curses}}$
 <br />
 <br />
 $\color{#910000}{\text{Heㅤ.ㅤHim   ㅤㅤ⋮  ㅤㅤ C  ㅤ+  ㅤH  ㅤenc}}$
