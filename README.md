@@ -9,16 +9,16 @@
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Kaushan+Script&size=25&duration=4985&pause=1000&color=880000&center=true&width=435&lines=%E2%9D%9D+Who+dares+to+touch+my+soul...+%E2%9D%9E" alt="Typing SVG" /></a>
 
-$\color{#BD0000}{\text{Ryomen Sukuna ︵ The King of Curses}}$
+$\color{#BD0000}{\text{SukunaㅤㅤSukugo Pilledㅤㅤ︵ ㅤThe King of Curses}}$
 <br />
 <br />
-$\color{#910000}{\text{He . Him ⋮ C + H enc}}$
+$\color{#910000}{\text{Heㅤ.ㅤHim   ㅤㅤ⋮  ㅤㅤ C  ㅤ+  ㅤH  ㅤenc}}$
 <br />
 <br />
-$\color{#730000}{\text{Wip , busy + kinda busy ? mostly s-afk or off-tab!}}$
+$\color{#730000}{\text{✦}}$
 <br />
 <br />
-$\color{#520000}{\text{w2i so i wont miss anything}}$
+$\color{#520000}{\text{S-AFKㅤ‿‿ㅤW2I}}$
 
 <img src="https://github.com/Corintheuss/The-Corinthian/blob/e7a390004bbb39eaca459c4c1b06fc9f120d21ee/tumblr_3f50765be503c324db4fbe1817cb83c4_68c787c6_1280.png" width="600" height="600" />
 
